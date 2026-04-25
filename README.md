@@ -3,11 +3,13 @@
 
 Boundaries and DNI
 •Don’t be weird.
-WSS / Dream supporters / problematic people
-Any discrimination (transphobic, homophobic, sexist, etc.)
--13 / 25+ ★ Don’t copy or heavily inspire from my ponies.
-• Ask first!! 𝐍o permission = no use.
-𝐈𝐭 𝐚𝐥𝐬𝐨 𝐦𝐞𝐚𝐧𝐬 𝐝𝐨 𝐍𝐎𝐓 𝐜𝐨𝐩𝐲/𝐢𝐧𝐬𝐩𝐨 𝐦𝐲 𝐮𝐬𝐮𝐚𝐥 𝐜𝐨𝐥𝐨𝐫𝐢𝐧𝐠 𝐬𝐭𝐲𝐥𝐞. 
+WSS / Dream supporters / problematic people. Any discrimination (transphobic, homophobic, sexist, etc.)
+-13 / 25+ 
+
+★ Don’t copy or use inspiration from any of my ponies. It also means do 𝐍𝐎𝐓 copy/inspo my usual color style 
+• Ask first! (light inspo only)
+𝐍o permission = no use.
+
 
 Respect my friends.
 If you have an issue with me → talk to me, not them.
