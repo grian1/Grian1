@@ -1,5 +1,6 @@
  ## 𝐆𝐫𝐢𝐚𝐧 / 𝐆 / 𝐆𝐫𝐢 
 19 → 20 y.o      ★𝙃𝙚/𝙃𝙞𝙢
+![https://files.catbox.moe/nwnoej.png](https://github.com/user/repo/assets/xxxxx)
 
 Boundaries and DNI
 •Don’t be weird.
