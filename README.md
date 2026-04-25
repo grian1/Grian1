@@ -1,16 +1,26 @@
-## Hi there 👋
+## Grian / G / Gri ♡
+19 → 20
 
-<!--
-**Grian1/Grian1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+𝐃𝐍𝐈 :
+Don’t be weird.
+WSS / Dream supporters / problematic people
+Any discrimination (transphobic, homophobic, sexist, etc.)
+<13 / 25+
 
-Here are some ideas to get you started:
+𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬☘︎
+Don’t copy or heavily inspire from my ponies.
+Ask first→no permission = no use.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Respect my friends.
+If you have an issue with me → talk to me, not them.
+It's not their responsibility to to solve my problems 
+
+𝖎𝖓𝖙❁ 
+c+h is okay ♡
+
+I’m quiet, often AFK, and not great at socializing.
+
+
+𝐀𝐥𝐰𝐚𝐲𝐬 𝐖2𝐈 !!
+
+Slow replies, might not see messages right away
