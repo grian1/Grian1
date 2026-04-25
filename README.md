@@ -1,13 +1,11 @@
  ## 𝐆𝐫𝐢𝐚𝐧 / 𝐆 / 𝐆𝐫𝐢 
 19 → 20 y.o      ★𝙃𝙚/𝙃𝙞𝙢
 
-## 𝐃𝐍𝐈 
+## Boundaries and DNI
 •Don’t be weird.
 WSS / Dream supporters / problematic people
 Any discrimination (transphobic, homophobic, sexist, etc.)
 -13 / 25+
-
-## 𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬
 
 Don’t copy or heavily inspire from my ponies.
 • Ask first!! 𝐍o permission = no use.
@@ -18,7 +16,7 @@ Respect my friends.
 If you have an issue with me → talk to me, not them.
 It's not their responsibility to to solve my problems 
 
-## 𝐈𝐍𝐓
+## Int
 Feel free for C+H ♡ Don't be shy, i won't bite!
 
 𝐀𝐥𝐰𝐚𝐲𝐬 𝐖2𝐈♪
