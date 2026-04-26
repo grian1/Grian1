@@ -1,14 +1,14 @@
  ## 𝐆𝐫𝐢𝐚𝐧 / 𝐆 / 𝐆𝐫𝐢 
 19 → 20 y.o      ★𝙃𝙚/𝙃𝙞𝙢
 
-Boundaries and DNI
+𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬 𝐚𝐧𝐝 𝐃𝐍𝐈
 
  Just don't be a jerk
  
 Basic DNI / Cafeteria criteria 
- -13 / 25+ 
+★  -13 / 25+ 
 
-★ DNC/INSPO any of my ponies + DNC/INSPO my coloring style.
+★ dnc/inspo any of my ponies + dnc/inspo my coloring style.
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems. 
