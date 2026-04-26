@@ -6,17 +6,14 @@ Boundaries and DNI
 WSS / Dream supporters / problematic people. Any discrimination (transphobic, homophobic, sexist, etc.)
 -13 / 25+ 
 
-★ Don’t copy or take inspiration from any of my ponies. This also means DO NOT copy or take inspiration from my usual color style.
-
-• Ask first (light inspiration only)
+★ Don’t copy or take inspiration from any of my ponies. This also means DO NOT copy or take inspiration from my usual color style. Ask first (light inspiration only)
 No permission = no use.
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.
 It’s not their responsibility to solve my problems.
 
-Please don’t flirt with me. I’m aroace and platonically taken. I won’t (and physically can’t) respond to flirty compliments or comments. Also, since I’m taken, things like that make me extremely uncomfortable and I find them weird.
-If we’re friends: flirting is okay as roleplay, as long as it doesn’t go too far. If it does, I’ll tell you.
+Please don’t flirt with me. I’m aroace and platonically taken If we’re friends: flirting is okay as roleplay, as long as it doesn’t go too far. If it does, I’ll tell you.
 
  𝙄𝙉𝙏 : 
 Feel free for C+H ♡
