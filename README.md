@@ -1,12 +1,12 @@
  ## 𝐆𝐫𝐢𝐚𝐧 / 𝐆 / 𝐆𝐫𝐢              
-19 → 20 y.o   . 𝙃𝙚/𝙃𝙞𝙢    
+19 → 20 y.o   , 𝙃𝙚/𝙃𝙞𝙢    
 
 𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬 𝐚𝐧𝐝 𝐃𝐍𝐈
 
  Don't be a jerk, 𝚝𝚑𝚊𝚝'𝚜 𝚊𝚕𝚕 
  
 Basic DNI / Cafeteria criteria 
-•  -13 / 25+ 
+, -13 / 25+ 
 
 𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨 any of my ponies + 𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨 my coloring style.
 
