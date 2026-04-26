@@ -11,13 +11,10 @@ No permission = no use.
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.
-It’s not their responsibility to solve my problems.
+It’s not their responsibility to solve my problems. 
 
-Please don’t flirt with me. I’m aroace and platonically taken If we’re friends: flirting is okay as roleplay, as long as it doesn’t go too far. If it does, I’ll tell you.
-
- 𝙄𝙉𝙏 : 
+𝙄𝙉𝙏 : 
 Feel free for C+H ♡
 Please don't be shy, i won't bite!
-
 𝘼𝙡𝙬𝙖𝙮𝙨 𝙬2𝙄 ! Slow replies - might not see messages right away, so please don’t take it personally if I don’t respond immediately.
 I’m quiet, often AFK, and not great at socializing.
