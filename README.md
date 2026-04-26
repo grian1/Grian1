@@ -6,8 +6,7 @@ Boundaries and DNI
 WSS / Dream supporters / problematic people. Any discrimination (transphobic, homophobic, sexist, etc.)
 -13 / 25+ 
 
-★ Don’t copy or take inspiration from any of my ponies. This also means DO NOT copy or take inspiration from my usual color style. Ask first (light inspiration only)
-No permission = no use.
+★ Don’t copy or take inspiration from any of my ponies. This also means DO NOT copy or take inspiration from my usual color style.
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.
