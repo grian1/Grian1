@@ -8,7 +8,7 @@
 Basic DNI / Cafeteria criteria 
 , -13 / 25+ 
 
-𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨 any of my ponies + 𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨 my (coloring)style.
+𝐝𝐧𝐜/𝐢𝐧𝐬𝐩𝐨 any of my ponies or my whole style in general.
 
 Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems. 
