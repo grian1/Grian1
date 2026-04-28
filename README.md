@@ -17,4 +17,4 @@ If you have an issue with me → talk to me, not them.It’s not their responsib
 Feel free for C+H
 Please don't be shy, i won't bite!
 Always W2I ! Slow replies - might not see messages right away, so please don’t take it personally if I don’t respond immediately.
-I’m quiet, often AFK, and not great at socializing.
+I’m quiet, often AFK, and not really great at socializing. But this doesn't mean we can't be friends!
